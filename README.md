@@ -1,2 +1,2 @@
 # paola
-Dana Paola Del Angel Felipe 
+Dana Paola
